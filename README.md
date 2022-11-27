@@ -1,2 +1,0 @@
-# pritam
-pritam des
